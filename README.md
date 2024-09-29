@@ -72,7 +72,7 @@ Many people are discovering the power of this tool and making **a significant am
 
 
 
-https://github.com/user-attachments/assets/b96fcd0c-e2ba-40c1-a402-e9c9c93c76e8
+
 
 
 
